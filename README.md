@@ -1,5 +1,6 @@
-![IMG_6446](https://github.com/user-attachments/assets/8c5e05f3-324e-4b80-98c6-0ba3b2c9165c)
-![IMG_6446](https://github.com/user-attachments/assets/8c5e05f3-324e-4b80-98c6-0ba3b2c9165c)
+<img width="640" height="72" alt="IMG_6440" src="https://github.com/user-attachments/assets/efed251e-7ff7-4cec-9387-7a1af3e68e11" />
+
+
 
 <!--
 bele,e
