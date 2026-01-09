@@ -1,4 +1,4 @@
-<img width="640" height="72" alt="IMG_6440" src="https://github.com/user-attachments/assets/efed251e-7ff7-4cec-9387-7a1af3e68e11" />
+<div align=_centwr> <img width="640" height="72" alt="IMG_6440" src="https://github.com/user-attachments/assets/efed251e-7ff7-4cec-9387-7a1af3e68e11" />
 
 
 
