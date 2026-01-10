@@ -9,11 +9,16 @@
 
 <img width="800" height="800" alt="Untitled37_20260109194347" src="https://github.com/user-attachments/assets/5cef3461-63ea-4767-b1aa-ac4d539d544d" />
 
-blinkies here, make sure there's a space between each one, ex:
+![blinkiesCafe-lw](https://github.com/user-attachments/assets/60612b30-6180-4c45-afdf-64fa6b0d34b8)
+![blinkiesCafe-DM](https://github.com/user-attachments/assets/2c3bd3d7-64f8-4ead-93e1-1f26fc40e07b)
+![blinkiesCafe-fc](https://github.com/user-attachments/assets/5a92621d-adab-4787-a80c-143eca912a06)
+![blinkiesCafe-ss](https://github.com/user-attachments/assets/2d03e300-f036-4ecc-a815-092c8a949336)
+![blinkiesCafe-H2](https://github.com/user-attachments/assets/5cdd3966-b9b1-4981-9e99-3893c984e910)
+![blinkiesCafe-2H](https://github.com/user-attachments/assets/ff58ce73-d464-4030-af55-64468b4751d4)
+![blinkiesCafe-PR](https://github.com/user-attachments/assets/7c6efcb3-10a5-4986-9afc-7a7d60f2a380)
 
-blinkie 1
-blinkie 2
-blinkie 3
+
+
 
 ![Static Badge](https://img.shields.io/badge/unwell-unwell?style=plastic&logo=gleam&logoColor=ffb6c1&label=mentally&labelColor=grey&color=d1ffbd)
 
