@@ -9,6 +9,13 @@
 
 <img width="800" height="800" alt="Untitled37_20260109194347" src="https://github.com/user-attachments/assets/5cef3461-63ea-4767-b1aa-ac4d539d544d" />
 
+blinkies here, make sure there's a space between each one, ex:
+blinkie 1
+
+blinkie 2
+
+blinkie 3
+
 ![Static Badge](https://img.shields.io/badge/unwell-unwell?style=plastic&logo=gleam&logoColor=ffb6c1&label=mentally&labelColor=grey&color=d1ffbd)
 
 
