@@ -33,7 +33,7 @@ $${\color{#abcda7ff} links \space ! \space ୨ৎ}$$
 
 [🎈](https://en.pronouns.page/@Xangel_xxx___)
 , [🍓](https://o0urca4rrdyyaayy.carrd.co/)
-, [🍰]((https://www.youtube.com/@Wannabe.ka1))
+, [🍰](https://www.youtube.com/@Wannabe.ka1)
 , [🎪](https://0urs1t3.straw.page/)
 
 <img width="1000" height="463" alt="eiuf7p" src="https://github.com/user-attachments/assets/da25aee6-3ced-483e-a9cd-869666625e07" />
