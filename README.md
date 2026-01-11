@@ -45,8 +45,9 @@ $${\color{#411f80} ꒰꒰꩜⸝⸝⸝ \space Webtoon \space Readers \space ꔫ }
 $${\color{#411f80} ꒰꒰꩜⸝⸝⸝ \space Computer \space  \space + \space  \space iPad user \space ꔫ }$$
 </details>
 
+
 <details>
-<summary>$${\color{#1c6ea1} DNI's \space + \space IWC'S \space + INT's \space ! }$$
+<summary>$${\color{#1c6ea1} DNI's \space + \space IWC'S \space + INT's \space ! }$$</summary>
 $${\color{#1c6ea1} ʚʚ \space 20+ \space DNI \space/ \space DNIIUWD }$$
 
 $${\color{#1c6ea1} ʚʚ \space 10- \space DNI \space / \space DNIIUWD }$$
