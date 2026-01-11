@@ -62,9 +62,9 @@ $${\color{#3085ba} ʚʚ \space 20+ \space DNI \space/ \space DNIUWD \space / \sp
 
 $${\color{#3085ba} ʚʚ \space 10- \space DNI \space / \space DNIUWD \space / \space IW(E)C }$$
 
-$${\color{#3085ba} ʚʚ \space Incest \space , \space Darkship \space , \space Proship \space DNI }$$
-
 $${\color{#3085ba} ʚʚ \space Hardcore \space Religous \space // \space Relgious \space Forcers \space IWEC }$$
+
+$${\color{#3085ba} ʚʚ \space Incest \space , \space Darkship \space , \space Proship \space DNI }$$
 
 $${\color{#3085ba} ʚʚ \space PonyTown \space : \space Tutorial \space Skins \space DNI }$$
 </details>
