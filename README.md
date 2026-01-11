@@ -71,7 +71,7 @@ $${\color{#3085ba} ʚʚ \space PonyTown \space : \space Tutorial \space Skins \s
 
 
 <details>
-<summary>$${\color{#6f47ba} Extra's \space / \space / \space collective \space interests \space ! \space ! \space (^>⩊o^)⟆ }$$</summary>
+<summary>$${\color{#6f47ba} Extra's \space / \space / \space collective \space interests \space ! \space ! \space (^o⩊<^)⟆ }$$</summary>
 $${\color{#b3e4e8} ┆𑄝 \space Space \space / \space Astrology }$$
 
 $${\color{#b3e4e8} ┆𑄝 \space Drawing \space + \space Coloring \space / \space Writing }$$
