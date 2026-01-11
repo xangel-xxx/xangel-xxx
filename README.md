@@ -1,5 +1,7 @@
 # HIIII!!! this is loo (wow who else could it be)
 
+<div align=center>
+
 anyways it's 6:17 am and um yeah
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4343B3&width=435&lines=%22++With+no+light+of+my+own+.+.+.++%22;%22++Tears+are+falling+endlessly+.+.++%22)](https://git.io/typing-svg)
@@ -33,4 +35,7 @@ best of luck with your github, have any questions? leave them on my ata book or 
 
 
 
-<img width="602" height="965" alt="image" src="https://github.com/user-attachments/assets/f02d7263-c0b4-42d0-a69d-5b4c6b998e19" />
+<img width="602" height="965" alt="image" src="https://github.com/user-attachments/assets/f02d7263-c0b4-42d0-a69d-5b4c6b998e19" 
+  
+  
+  </div>/>
