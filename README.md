@@ -17,6 +17,8 @@ $${\color{#2a30a0} Any \space // \space All \space prns \space ,, \space He \spa
 
 
 ![Static Badge](https://img.shields.io/badge/fl%E2%9C%A6wers-fl%E2%9C%A6wers?logo=gleam&logoColor=0f3e8e&label=m%E2%9C%A6%E2%9C%A6n&labelColor=255a99&color=b8d7dc)
+![IMG_6770](https://github.com/user-attachments/assets/57815fff-c312-477e-93dc-e473145e4fb9)
+
 
 
 <img width="1024" height="562" alt="Untitled1_20260111161128" src="https://github.com/user-attachments/assets/a09dd112-361a-4751-a060-46890242a7f2" />
