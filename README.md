@@ -13,6 +13,8 @@ $${\color{#7ea7ba} ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶�
 <img width="1024" height="562" alt="Untitled1_20260111161145" src="https://github.com/user-attachments/assets/15459570-bcce-4838-be3f-ea35c6d38267" />
 
 
+text
+
 
 ![Static Badge](https://img.shields.io/badge/fl%E2%9C%A6wers-fl%E2%9C%A6wers?logo=gleam&logoColor=0f3e8e&label=m%E2%9C%A6%E2%9C%A6n&labelColor=255a99&color=b8d7dc)
 
