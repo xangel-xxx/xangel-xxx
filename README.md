@@ -28,24 +28,24 @@ $${\color{#2a30a0} Any \space // \space All \space prns \space ,, \space He \spa
 
 ![Static Badge](https://img.shields.io/badge/fl%E2%9C%A6wers-fl%E2%9C%A6wers?logo=gleam&logoColor=0f3e8e&label=m%E2%9C%A6%E2%9C%A6n&labelColor=255a99&color=b8d7dc)
 
-$${\color{#1c6ea1} ⸝⸝⸝‿‿‿‿‿‿‿‿‿‿‿‿⸝⸝⸝ }$$
-
 <details>
 <summary>$${\color{#603f91} About \space us \space ! \space ! \space ฅᨐฅ }$$</summary>
-꒰꒰꩜⸝⸝⸝ Growing System ꔫ
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ \space Growing \space System \space ꔫ }$$
 
-꒰꒰꩜⸝⸝⸝ Collectively Multishippers ꔫ
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Collectively Multishippers ꔫ }$$
 
-꒰꒰꩜⸝⸝⸝ Collectively Multifandom ꔫ
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Collectively Multifandom ꔫ }$$
 
-꒰꒰꩜⸝⸝⸝ Soda enthusiasts ꔫ
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Soda enthusiasts ꔫ }$$
 
-꒰꒰꩜⸝⸝⸝ Yaoi  +  Yuri addicts ꔫ
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Yaoi  +  Yuri addicts ꔫ }$$
 
-꒰꒰꩜⸝⸝⸝ Webtoon Readers ꔫ
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Webtoon Readers ꔫ }$$
 
-꒰꒰꩜⸝⸝⸝ Computer  +  iPad user ꔫ
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Computer  +  iPad user ꔫ }$$
 </details>
+
+<summary>$${\color{#1c6ea1}
 
 
 <img width="1024" height="562" alt="Untitled1_20260111161128" src="https://github.com/user-attachments/assets/a09dd112-361a-4751-a060-46890242a7f2" />
