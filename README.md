@@ -32,6 +32,7 @@ $${\color{#2a30a0} Any \space // \space All \space prns \space ,, \space He \spa
 
 $${\color{#1c6ea1} ⸝⸝⸝‿‿‿‿‿‿‿‿‿‿‿‿⸝⸝⸝ }$$
 
+<details></details>
 <summary>$${\color{#603f91} About \space us \space ! \space ! \space ฅᨐฅ }$$<summary>
 ꒰꒰꩜⸝⸝⸝ Growing System ꔫ
 
@@ -46,7 +47,6 @@ $${\color{#1c6ea1} ⸝⸝⸝‿‿‿‿‿‿‿‿‿‿‿‿⸝⸝⸝ }$$
 ꒰꒰꩜⸝⸝⸝ Webtoon Readers ꔫ
 
 ꒰꒰꩜⸝⸝⸝ Computer  +  iPad user ꔫ
-<\details>
 
 
 ![IMG_6722](https://github.com/user-attachments/assets/f93f5b0e-1987-4baf-99ee-5a52b0dbb7c1)
