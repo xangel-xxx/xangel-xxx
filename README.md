@@ -32,7 +32,7 @@ $${\color{#2a30a0} Any \space // \space All \space prns \space ,, \space He \spa
 
 $${\color{#1c6ea1} ⸝⸝⸝‿‿‿‿‿‿‿‿‿‿‿‿⸝⸝⸝ }$$
 
-<details></details>
+<details>
 <summary>$${\color{#603f91} About \space us \space ! \space ! \space ฅᨐฅ }$$<summary>
 ꒰꒰꩜⸝⸝⸝ Growing System ꔫ
 
