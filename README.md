@@ -23,3 +23,5 @@ i used this website for the symbols. i looked up cat on here too for cat thingys
 https://emojidb.org/symbols-emojis?utm_source=user_search
 
 best of luck with your github, have any questions? leave them on my ata book or log onto ponytown after 9pm, i should be on at that time.
+
+# ALSO DW ABOUT WHERE YOUR MAIN GITHUB IS. IT'S A SEPERATE REPOSITORY I JUST CHANGED THE NAME SO YOU WOULD NOTICE THIS ONE !!
