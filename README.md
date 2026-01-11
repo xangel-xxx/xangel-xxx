@@ -29,3 +29,7 @@ https://emojidb.org/symbols-emojis?utm_source=user_search
 best of luck with your github, have any questions? leave them on my ata book or log onto ponytown after 9pm, i should be on at that time.
 
 # ALSO DW ABOUT WHERE YOUR MAIN GITHUB IS. IT'S A SEPERATE REPOSITORY I JUST CHANGED THE NAME SO YOU WOULD NOTICE THIS ONE !!
+
+
+
+<img width="602" height="965" alt="image" src="https://github.com/user-attachments/assets/f02d7263-c0b4-42d0-a69d-5b4c6b998e19" />
