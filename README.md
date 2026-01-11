@@ -32,20 +32,22 @@ $${\color{#2a30a0} Any \space // \space All \space prns \space ,, \space He \spa
 <summary>$${\color{#603f91} About \space us \space ! \space ! \space ฅᨐฅ }$$</summary>
 $${\color{#411f80} ꒰꒰꩜⸝⸝⸝ \space Growing \space System \space ꔫ }$$
 
-$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Collectively Multishippers ꔫ }$$
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ \space Collectively \space Multishippers \space ꔫ }$$
 
-$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Collectively Multifandom ꔫ }$$
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ \space Collectively \space Multifandom \space ꔫ }$$
 
-$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Soda enthusiasts ꔫ }$$
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ \space Soda \space enthusiasts \space ꔫ }$$
 
-$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Yaoi  +  Yuri addicts ꔫ }$$
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Yaoi \space  \space + \space  \space Yuri \space addicts \space ꔫ }$$
 
-$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Webtoon Readers ꔫ }$$
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ \space Webtoon \space Readers \space ꔫ }$$
 
-$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ Computer  +  iPad user ꔫ }$$
+$${\color{#411f80} ꒰꒰꩜⸝⸝⸝ \space Computer \space  \space + \space  \space iPad user \space ꔫ }$$
 </details>
 
-<summary>$${\color{#1c6ea1}
+<details>
+<summary>$${\color{#1c6ea1} DNI's \space + \space IWC'S \space + INT's \space ! }$$
+$${\color{#1c6ea1} ʚʚ }$$
 
 
 <img width="1024" height="562" alt="Untitled1_20260111161128" src="https://github.com/user-attachments/assets/a09dd112-361a-4751-a060-46890242a7f2" />
