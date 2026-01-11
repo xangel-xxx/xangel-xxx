@@ -3,7 +3,7 @@
 
 <div align=center>
 
-$${\color{719b97}I'm \space the \space black \space cat \space . \sapce
+$${\color{#719b97} I'm \space the \space black \space cat \space . \sapce
 
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶⊹︶︶
 
