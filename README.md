@@ -17,22 +17,5 @@ anyways it's 6:17 am and um yeah
 
 <img width="1024" height="562" alt="Untitled1_20260111161128" src="https://github.com/user-attachments/assets/a09dd112-361a-4751-a060-46890242a7f2" />
 
-
-the website for the animated text is 
-
-https://readme-typing-svg.demolab.com/demo/?color=F7C38C&lines=text+goes+here+!
-
-the website for the badges is 
-
-https://shields.io/badges
-
-i used this website for the symbols. i looked up cat on here too for cat thingys 
-
-https://emojidb.org/symbols-emojis?utm_source=user_search
-
-best of luck with your github, have any questions? leave them on my ata book or log onto ponytown after 9pm, i should be on at that time.
-
-# ALSO DW ABOUT WHERE YOUR MAIN GITHUB IS. IT'S A SEPERATE REPOSITORY I JUST CHANGED THE NAME SO YOU WOULD NOTICE THIS ONE !! 
-  
   
   </div>
