@@ -3,6 +3,9 @@
 
 <div align=center>
 
+![IMG_6760](https://github.com/user-attachments/assets/aea9ecb0-a501-46a6-9fb6-f8dc2a8d169a)
+
+
 $${\color{#719b97} And \space i'm \space the \space black \space cat \space /ᐠ˵- ⩊ -˵マ \space . }$$
 
 $${\color{#7ea7ba} ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶⊹︶ }$$
