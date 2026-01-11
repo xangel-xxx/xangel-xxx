@@ -47,7 +47,7 @@ $${\color{#1c6ea1} ⸝⸝⸝‿‿‿‿‿‿‿‿‿‿‿‿⸝⸝⸝ }$$
 ꒰꒰꩜⸝⸝⸝ Webtoon Readers ꔫ
 
 ꒰꒰꩜⸝⸝⸝ Computer  +  iPad user ꔫ
-<\details>
+</details>
 
 
 <img width="1024" height="562" alt="Untitled1_20260111161128" src="https://github.com/user-attachments/assets/a09dd112-361a-4751-a060-46890242a7f2" />
