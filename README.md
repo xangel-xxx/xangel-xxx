@@ -50,13 +50,13 @@ $${\color{#411f80} ꒰꒰꩜⸝⸝⸝ \space Computer \space  \space + \space  \
 <summary>$${\color{#1c6ea1} DNI's \space + \space IWC'S \space + INT's \space ! \space ᓚᘏᗢ }$$</summary>
 $${\color{#3085ba} ʚʚ \space 20+ \space DNI \space/ \space DNIUWD \space / \space IW(E)C }$$
 
-$${\color{#1c6ea1} ʚʚ \space 10- \space DNI \space / \space DNIUWD \space / \space IW(E)C }$$
+$${\color{#3085ba} ʚʚ \space 10- \space DNI \space / \space DNIUWD \space / \space IW(E)C }$$
 
-$${\color{#1c6ea1} ʚʚ \space Incest \space , \space Darkship \space , \space Proship \space DNI }$$
+$${\color{#3085ba} ʚʚ \space Incest \space , \space Darkship \space , \space Proship \space DNI }$$
 
-$${\color{#1c6ea1} ʚʚ \space Hardcore \space Religous \space // \space Relgious \space Forcers \space IWEC }$$
+$${\color{#3085ba} ʚʚ \space Hardcore \space Religous \space // \space Relgious \space Forcers \space IWEC }$$
 
-$${\color{#1c6ea1} ʚʚ \space PonyTown \space : \space Tutorial \space Skins \space DNI }$$
+$${\color{#3085ba} ʚʚ \space PonyTown \space : \space Tutorial \space Skins \space DNI }$$
 </details>
 
 
