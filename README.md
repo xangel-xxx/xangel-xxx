@@ -2,7 +2,8 @@
 
 anyways it's 6:17 am and um yeah
 
-i'm leaving your images for our matching githubs on here. i finished mine already, so feel free to have a look !
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=1F45A6&width=435&lines=%22++With+no+light+of+my+own+.+.+.++%22;%22++I+am+not+the+sunshine+!++%22)](https://git.io/typing-svg)
+
 
 <img width="750" height="555" alt="2026_01_11_08k_Kleki" src="https://github.com/user-attachments/assets/f238686c-bf65-4c4e-9994-0fa2ee8cf3fd" />
 
