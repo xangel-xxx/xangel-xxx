@@ -8,7 +8,7 @@ anyways it's 6:17 am and um yeah
 <img width="750" height="555" alt="2026_01_11_08k_Kleki" src="https://github.com/user-attachments/assets/f238686c-bf65-4c4e-9994-0fa2ee8cf3fd" />
 
 
-![Static Badge](https://img.shields.io/badge/fl%E2%9C%A6wersfl%E2%9C%A6wers?logo=gleam&logoColor=194796&label=m%E2%9C%A6%E2%9C%A6n&labelColor=255a99&color=b8d7dc)
+![Static Badge](https://img.shields.io/badge/fl%E2%9C%A6wers-fl%E2%9C%A6wers?logo=gleam&logoColor=194796&label=m%E2%9C%A6%E2%9C%A6n&labelColor=255a99&color=b8d7dc)
 
 
 <img width="1032" height="570" alt="2026_01_11_07w_Kleki (1)" src="https://github.com/user-attachments/assets/0d5cc4e4-1eb6-42a9-8451-c97318a87c32" />
