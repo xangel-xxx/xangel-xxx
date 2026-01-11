@@ -3,7 +3,8 @@
 
 <div align=center>
 
-![IMG_6760](https://github.com/user-attachments/assets/aea9ecb0-a501-46a6-9fb6-f8dc2a8d169a)
+![IMG_6737](https://github.com/user-attachments/assets/6e806868-7a37-4cee-99e2-e6e61803691c)
+
 
 
 $${\color{#719b97} And \space i'm \space the \space black \space cat \space /ᐠ˵- ⩊ -˵マ \space . }$$
