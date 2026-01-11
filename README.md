@@ -4,7 +4,7 @@
 <div align=center>
 
 anyways it's 6:17 am and um yeah
-$${\color{#hexcode}︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶⊹︶︶
+$${\color{#hexcode} ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶⊹︶︶
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4343B3&width=435&lines=%22++With+no+light+of+my+own+.+.+.++%22;%22++Tears+are+falling+endlessly+.+.++%22)](https://git.io/typing-svg)
 
