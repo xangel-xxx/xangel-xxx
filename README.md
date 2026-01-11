@@ -48,9 +48,9 @@ $${\color{#411f80} ꒰꒰꩜⸝⸝⸝ \space Computer \space  \space + \space  \
 
 <details>
 <summary>$${\color{#1c6ea1} DNI's \space + \space IWC'S \space + INT's \space ! \space ᓚᘏᗢ }$$</summary>
-$${\color{#1c6ea1} ʚʚ \space 20+ \space DNI \space/ \space DNIUWD \space IW(E)C }$$
+$${\color{#1c6ea1} ʚʚ \space 20+ \space DNI \space/ \space DNIUWD \space / \space IW(E)C }$$
 
-$${\color{#1c6ea1} ʚʚ \space 10- \space DNI \space / \space DNIUWD \space IW(E)C }$$
+$${\color{#1c6ea1} ʚʚ \space 10- \space DNI \space / \space DNIUWD \space / \space IW(E)C }$$
 
 $${\color{#1c6ea1} ʚʚ \space Incest \space , \space Darkship \space , \space Proship \space DNI }$$
 
