@@ -19,7 +19,7 @@ $${\color{#7ea7ba} ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶�
 <img width="1024" height="562" alt="Untitled1_20260111161145" src="https://github.com/user-attachments/assets/15459570-bcce-4838-be3f-ea35c6d38267" />
 
 
-$${\color{#658ab5} Looey \space // \space Van1ty \space // \space Geothermal }$$
+$${\color{#658ab5} 𖧧Looey \space // \space Van1ty \space // \space Geothermal𖧧 }$$
 
 
 $${\color{#152b76} ----------- }$$
@@ -71,6 +71,9 @@ $${\color{#3085ba} ʚʚ \space PonyTown \space : \space Tutorial \space Skins \s
 
 
 <details>
+<summary>$${\color{#<summary>$${\color{#6f47ba} Extra's \space / \space / \space interests \space ! \space ! \space (^>⩊<^)⟆ }$$
+$${\color{#b3e4e8} ┆𑄝 \space 
+
 
 
 <img width="1024" height="562" alt="Untitled1_20260111161128" src="https://github.com/user-attachments/assets/a09dd112-361a-4751-a060-46890242a7f2" />
