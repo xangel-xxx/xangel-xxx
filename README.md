@@ -35,11 +35,17 @@ $${\color{#1c6ea1} ⸝⸝⸝‿‿‿‿‿‿‿‿‿‿‿‿⸝⸝⸝ }$$
 <details>
 <summary>$${\color{#603f91} About \sapce us \space ! \space ! \space ฅᨐฅ }$$<summary>
 ꒰꒰꩜⸝⸝⸝ Growing System ꔫ
+
 ꒰꒰꩜⸝⸝⸝ Collectively Multishippers ꔫ
+
 ꒰꒰꩜⸝⸝⸝ Collectively Multifandom ꔫ
+
 ꒰꒰꩜⸝⸝⸝ Soda enthusiasts ꔫ
+
 ꒰꒰꩜⸝⸝⸝ Yaoi  +  Yuri addicts ꔫ
+
 ꒰꒰꩜⸝⸝⸝ Webtoon Readers ꔫ
+
 ꒰꒰꩜⸝⸝⸝ Computer  +  iPad user ꔫ
 <\details>
 
