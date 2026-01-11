@@ -71,7 +71,7 @@ $${\color{#3085ba} ʚʚ \space PonyTown \space : \space Tutorial \space Skins \s
 
 
 <details>
-<summary>$${\color{#<summary>$${\color{#6f47ba} Extra's \space / \space / \space interests \space ! \space ! \space (^>⩊<^)⟆ }$$
+<summary>$${\color{#<summary>$${\color{#6f47ba} Extra's \space / \space / \space interests \space ! \space ! \space (^>⩊<^)⟆ }$$</summary>
 $${\color{#b3e4e8} ┆𑄝 \space 
 
 
