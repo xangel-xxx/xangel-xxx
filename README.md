@@ -2,7 +2,7 @@
 
 anyways it's 6:17 am and um yeah
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=54439D&width=435&lines=%22++With+no+light+of+my+own+.+.+.++%22;%22++I+shine+only+with+the+light+you+give+me+.+.++%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4343B3&width=435&lines=%22++With+no+light+of+my+own+.+.+.++%22;%22++Tears+are+falling+endlessly+.+.++%22)](https://git.io/typing-svg)
 
 
 <img width="750" height="555" alt="2026_01_11_08k_Kleki" src="https://github.com/user-attachments/assets/f238686c-bf65-4c4e-9994-0fa2ee8cf3fd" />
