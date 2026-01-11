@@ -3,7 +3,7 @@
 
 <div align=center>
 
-$${\color{#719b97} And \space i'm \space the \space black \space cat \space . \space /•᷅‎‎•᷄\੭ }$$
+$${\color{#719b97} And \space i'm \space the \space black \space cat \space . \space /ᐠ˵- ⩊ -˵マ }$$
 
 $${\color{#7ea7ba} ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶⊹︶ }$$
 
