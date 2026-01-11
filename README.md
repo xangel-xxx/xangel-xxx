@@ -25,6 +25,7 @@ $${\color{#2a30a0} Any \space // \space All \space prns \space ,, \space He \spa
 ![IMG_6770](https://github.com/user-attachments/assets/57815fff-c312-477e-93dc-e473145e4fb9)
 
 
+![IMG_6722](https://github.com/user-attachments/assets/f93f5b0e-1987-4baf-99ee-5a52b0dbb7c1)
 
 <img width="1024" height="562" alt="Untitled1_20260111161128" src="https://github.com/user-attachments/assets/a09dd112-361a-4751-a060-46890242a7f2" />
 
