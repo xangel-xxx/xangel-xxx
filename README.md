@@ -9,11 +9,10 @@ anyways it's 6:17 am and um yeah
 
 
 
-![Static Badge](https://img.shields.io/badge/fl%E2%9C%A6wers-fl%E2%9C%A6wers?logo=gleam&logoColor=0f3e8e&label=m%E2%9C%A6%E2%9C%A6n&labelColor=255a99&color=b8d7dc)
+<div align=center> </div>![Static Badge](https://img.shields.io/badge/fl%E2%9C%A6wers-fl%E2%9C%A6wers?logo=gleam&logoColor=0f3e8e&label=m%E2%9C%A6%E2%9C%A6n&labelColor=255a99&color=b8d7dc)
 
 
 <img width="1024" height="562" alt="Untitled1_20260111161128" src="https://github.com/user-attachments/assets/a09dd112-361a-4751-a060-46890242a7f2" />
- />
 
 
 the website for the animated text is 
