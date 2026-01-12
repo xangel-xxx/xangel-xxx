@@ -25,7 +25,7 @@ $${\color{#658ab5} 𖧧Looey \space // \space Van1ty \space // \space Geothermal
 $${\color{#152b76} ----------- }$$
 
 
-$${\color{#2a30a0} Any \space // \space All \space prns \space ,, \space He \space // \space They \space // \space Nyet \space preferred \space ! }$$
+$${\color{#2a30a0} Any \space / \space All \space prns \space ,, \space He \space / \space They \space / \space Nyet \space preferred \space ! }$$
 
 
 ![Static Badge](https://img.shields.io/badge/fl%E2%9C%A6wers-fl%E2%9C%A6wers?logo=gleam&logoColor=0f3e8e&label=m%E2%9C%A6%E2%9C%A6n&labelColor=255a99&color=b8d7dc)
