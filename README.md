@@ -78,10 +78,18 @@ $${\color{#b3e4e8} ┆𑄝 \space Drawing \space + \space Coloring \space / \spa
 
 $${\color{#b3e4e8} ┆𑄝 \space Listening \space to \space music \space + \space singing }$$
 
-$${\color{#b3e4e8} ┆𑄝 \space 
+$${\color{#b3e4e8} ┆𑄝 \space History \space / \space Mythology }$$
 
-$${\color{#b3e4e8} ┆𑄝 \space
+$${\color{#b3e4e8} ┆𑄝 \space Starting \space random \space hoard \space collections }$$
 </details>
+
+<details>
+<summary>$${color{#3c6ec3} Credits \space ! \space ฅ^ >ヮ<^₎ }$$</summary>
+$${color{#3c6ec3} 𔓕 \space raymq2 \space on \space TikTok \space !! \space 𔓕 }$$
+</details>
+
+
+$${color{#2b7ec9| Made \space by \space Looey \space ! }$$
 
 
 
