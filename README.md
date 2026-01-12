@@ -58,6 +58,10 @@ $${\color{#3085ba} ʚʚ \space Ohter \space systems \space INT }$$
 
 $${\color{#3085ba} ʚʚ \space Inrojects(Intrj) \space INT }$$
 
+$${\color{#3085ba} ʚʚ \space Multishippers \space INT }$$
+
+$${\color{#3085ba} ʚʚ \space Multifandoms \space IWC }$$
+
 $${\color{#3085ba} ʚʚ \space 20+ \space DNI \space/ \space DNIUWD \space / \space IW(E)C }$$
 
 $${\color{#3085ba} ʚʚ \space 10- \space DNI \space / \space DNIUWD \space / \space IW(E)C }$$
