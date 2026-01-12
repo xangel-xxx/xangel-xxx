@@ -84,7 +84,7 @@ $${\color{#b3e4e8} ┆𑄝 \space Starting \space random \space hoard \space col
 </details>
 
 <details>
-<summary>$${color{#3c6ec3} Credits \space ! \space ฅ^ >ヮ<^₎ }$$</summary>
+<summary>$${\color{#3c6ec3} Credits \space ! \space ฅ^ >ヮ<^) }$$</summary>
 $${\color{#3c6ec3} 𔓕 \space raymq2 \space on \space TikTok \space !! \space 𔓕 }$$
 </details>
 
