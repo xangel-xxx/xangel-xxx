@@ -64,7 +64,11 @@ $${\color{#3085ba} ʚʚ \space 10- \space DNI \space / \space DNIUWD \space / \s
 
 $${\color{#3085ba} ʚʚ \space Hardcore \space Religous \space // \space Relgious \space Forcers \space IWEC }$$
 
+$${\color{#3085ba} ʚʚ \space Homophics \space + \space Transphobes \space DNI }$$
+
 $${\color{#3085ba} ʚʚ \space Incest \space , \space Darkship \space , \space Proship \space DNI }$$
+
+$${\color{#3085ba} ʚʚ \space Racisists \space , \space Predators \space DNI }$$ 
 
 $${\color{#3085ba} ʚʚ \space PonyTown \space : \space Tutorial \space Skins \space DNI }$$
 </details>
