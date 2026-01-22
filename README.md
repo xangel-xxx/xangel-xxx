@@ -19,9 +19,6 @@ $${\color{#9544b0} ☆. \space Geothermal[Geo] \space , \space V4nity[V4n] \spac
 $${\color{#cf47c4} ✮˚｡ \space Any \space / \space All \space prns \space collectively \space ｡˚✮ }$$
 
 
-$${\color{#6c21b7} .𖦹 \space 4teen \space yrs \space old \space bodily \space .𖦹 }$$
-
-
 <details>
 <summary>$${\color{#d2176d} ୨𖦹୧ \space Inspired \space by \space : \space @RougeAIs \space ୨𖦹୧ }$$ </summary>
 $${\color{#8f68dc} ⛔ \space = \space Busy/not \space very \space talkative/mute \space = \space ⛔ }$$
