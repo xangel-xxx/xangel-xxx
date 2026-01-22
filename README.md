@@ -24,9 +24,10 @@ $${\color{#6c21b7} .𖦹 \space 4teen \space yrs \space old \space bodily \space
 
 <details>
 <summary>$${\color{#d2176d} ୨𖦹୧ \space Inspired \space by \space @RougeAIs \space ୨𖦹୧ }$$ </summary>
-⛔ = Busy/not very talkative
-  🌜 = AFK/Doing something near device
-🟢 = Online/willing to talk
+$${\color{#8f68dc} ⛔ \space = \space Busy/not \space very \space talkative/mute \space = \space ⛔ }$$
+$${\color{#8f68dc} 🌜 \space = \space AFK/Doing \space something \space near \space device \space = \space 🌜 }$$
+
+$${\color{#8f68dc} 🟢 \space = \spaceOnline/willing \space to \space talk/talkative \space = \space 🟢 }$$
 </details>
 
 
