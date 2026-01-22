@@ -22,6 +22,11 @@ $${\color{#cf47c4} ✮˚｡ \space Any \space / \space All \space prns \space co
 $${\color{#6c21b7} .𖦹 \space 4teen \space yrs \space old \space bodily \space .𖦹 }$$
 
 
+(This part is inspired by: @RougeAIs)
+⛔ = Busy or not very talkative , 🌜 = AFK or Doing something near computer
+🟢 = Online , willing to talk
+
+
 $${\color{#c52e9f} ꒰⁐⁐⁐⁐୨୧⁐⁐⁐⁐꒱ \space ꒰⁐⁐⁐⁐୨୧⁐⁐⁐⁐꒱ }$$
 
 
