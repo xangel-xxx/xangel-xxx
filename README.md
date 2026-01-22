@@ -23,7 +23,7 @@ $${\color{#6c21b7} .𖦹 \space 4teen \space yrs \space old \space bodily \space
 
 
 <details>
-<summary>$${\color{#6c21b7} ୨𖦹୧ \space Inspired \space by \space @RougeAIs \space ୨𖦹୧$$ </summary>
+<summary>$${\color{#d2176d} ୨𖦹୧ \space Inspired \space by \space @RougeAIs \space ୨𖦹୧ }$$ </summary>
 ⛔ = Busy/not very talkative
   
 🌜 = AFK/Doing something near device
