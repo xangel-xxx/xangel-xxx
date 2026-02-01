@@ -85,7 +85,7 @@ $${\color{#EEE9E1} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. \space . ݁₊ ⊹ . ݁
 
 $${\color{#EEE9E1} ⪧PonyTown \space ; \space tutorial(tut) \space skins \space DNI \space
 
-$${\color{#EEE9E1} ⪧PonyTown \space ; \space whisper \space spam \space DNI \space
+$${\color{#EEE9E1} ⪧ \space PonyTown \space ; \space whisper \space spam \space DNI \space
 </details>
 
 
