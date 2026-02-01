@@ -28,11 +28,11 @@ $${\color{#C1C1B9} L0ttery \space (L0t) }$$
 
 $${\color{#C1C1B9} Nebula \space (Neb/Nebby) }$$
 
-$${\color{#C1C1B9} Ka1 }$$
-
 $${\color{#C1C1B9} Xangel \space (Xan/angel) }$$
 
 $${\color{#C1C1B9} Jay \space (J) }$$
+
+$${\color{#C1C1B9} Ka1 }$$
 
 $${\color{#C1C1B9} Bi }$$
 
