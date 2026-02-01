@@ -20,7 +20,23 @@ $${\color{#EEE9E1} They/Them \space ᴗ \space He/Him \space prns \space Ꮺ }$$
 
 <details>
 <summary>$${\color{#296BBC} Names \space ꒰꒰ }$$</summary>
-$${\color{#C1C1B9}
+$${\color{#C1C1B9} Geothermal \space (Geo) }$$
+
+$${\color{#C1C1B9} V4nity \space (V4n/Tin) }$$
+
+$${\color{#C1C1B9} L0ttery \space (L0t) }$$
+
+$${\color{#C1C1B9} Nebula \space (Neb/Nebby) }$$
+
+$${\color{#C1C1B9} Ka1 }$$
+
+$${\color{#C1C1B9} Xangel \space (Xan/angel) }$$
+
+$${\color{#C1C1B9} Jay \space (J) }$$
+
+$${\color{#C1C1B9} Bi }$$
+
+$${\color{#C1C1B9}Cre }$$
 
 
 </div>
