@@ -77,15 +77,15 @@ $${\color{#EEE9E1} ⪧ \space General \space ; \space 20+ \space IWC \space ⪨�
 
 $${\color{#EEE9E1} ⪧ \space General \space ; \space Racist \space , \space Incest \space , \space Bigotry \space DNI \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space Religous \space Forcers \space , \space strictly \space religous \space IWC \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space General \space ; \space Religous \space Forcers \space , \space strictly \space religous \space IWC \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space Multifandom \space IWC \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space General \space ; \space Multifandom \space IWC \space ⪨︎ }$$
 
-$${\color{#EEE9E1} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. \space . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+$${\color{#EEE9E1} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. \space . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. }$$
 
-$${\color{#EEE9E1} ⪧ \space PonyTown \space ; \space tutorial(tut) \space skins \space DNI \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space PonyTown \space ; \space tutorial(tut) \space skins \space DNI \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space PonyTown \space ; \space whisper \space spam \space DNI \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space PonyTown \space ; \space whisper \space spam \space DNI \space ⪨︎ }$$
 </details>
 
 
