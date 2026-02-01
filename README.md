@@ -19,7 +19,8 @@ $${\color{#EEE9E1} They/Them \space ᴗ \space He/Him \space prns \space Ꮺ }$$
 
 
 <details>
-<summary>$${\color{#296BBC} Names \space ꒰꒰ }$$
+<summary>$${\color{#296BBC} Names \space ꒰꒰ }$$</summary>
+$${\color{#C1C1B9}
 
 
 </div>
