@@ -63,25 +63,29 @@ $${\color{#EEE9E1} General \space ; doubles \space INT
 
 $${\color{#EEE9E1} General \space ; \space singlets \space INT
 
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} General \space ; \space Inrojects(intrj) \space INT \space
 
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} General \space ; \space Multiship \space + \space crackship \space INT
 
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} General \space ; \space Darkshippers \space + \space Proshippers \space IWEC \space
 
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} General \space ; \space Trump \space supports \space , \space homophobes/transphobes \space DNI \space
 
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} General \space ; \space 10- \space DNIUWD \space
 
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} General \space ; \space 20+ \space IWC \space
 
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} General \space ; \space Racist \space , \space Incest \space , \space Bigotry \space DNI \space
 
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} General \space ; \space Religous \space Forcers \space , \space strictly \space religous \space IWC \space
+
+$${\color{#EEE9E1} General \space ; \space Multifandom \space IWC
 
 $${\color{#EEE9E1} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. \space . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 $${\color{#EEE9E1} PonyTown \space ; \space tutorial(tut) \space skins \space DNI \space
+
+$${\color{#EEE9E1} PonyTown \space ; \space whisper \space spam \space DNI \space
 </details>
 
 
