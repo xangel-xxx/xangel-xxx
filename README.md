@@ -55,27 +55,27 @@ $${\color{#C1C1B9}Cre }$$
 
 <details>
 <summary>$${\color{#E2E2E2} ⪧ \space DNI's \space + \space IWC/IWEC's \space + \space INT's \space !Ꮺ }$$</summary>
-$${\color{#EEE9E1} ⪧ \space General \space ; \space other \space systems \space INT \space
+$${\color{#EEE9E1} ⪧ \space General \space ; \space other \space systems \space INT \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space General \space; \space fictionkins \space + \space fictikins \space INT \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space General \space; \space fictionkins \space + \space fictikins \space INT \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space General \space ; doubles \space INT \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space General \space ; doubles \space INT \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space singlets \space INT \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space General \space ; \space singlets \space INT \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space Inrojects(intrj) \space INT \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space General \space ; \space Inrojects(intrj) \space INT \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space Multiship \space + \space crackship \space INT \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space General \space ; \space Multiship \space + \space crackship \space INT \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space Darkshippers \space + \space Proshippers \space IWEC \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space General \space ; \space Darkshippers \space + \space Proshippers \space IWEC \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space Trump \space supports \space , \space homophobes/transphobes \space DNI \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space General \space ; \space Trump \space supports \space , \space homophobes/transphobes \space DNI \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space 10- \space DNIUWD \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space General \space ; \space 10- \space DNIUWD \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space 20+ \space IWC \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space General \space ; \space 20+ \space IWC \space ⪨︎ }$$
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space Racist \space , \space Incest \space , \space Bigotry \space DNI \space ⪨︎
+$${\color{#EEE9E1} ⪧ \space General \space ; \space Racist \space , \space Incest \space , \space Bigotry \space DNI \space ⪨︎ }$$
 
 $${\color{#EEE9E1} ⪧ \space General \space ; \space Religous \space Forcers \space , \space strictly \space religous \space IWC \space ⪨︎
 
