@@ -40,7 +40,7 @@ $${\color{#C1C1B9} Ka1 }$$
 
 $${\color{#C1C1B9} Bi }$$
 
-$${\color{#C1C1B9}Cre }$$
+$${\color{#C1C1B9} Cre }$$
 </details>
 
 
