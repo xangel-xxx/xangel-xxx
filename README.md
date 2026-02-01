@@ -81,7 +81,7 @@ $${\color{#EEE9E1} ⪧ \space General \space ; \space Religous \space Forcers \s
 
 $${\color{#EEE9E1} ⪧ \space General \space ; \space Multifandom \space IWC \space ⪨︎ }$$
 
-$${\color{#EEE9E1} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. \space . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. }$$
+$${\color{#EEE9E1} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. \space . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. \space . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. }$$
 
 $${\color{#EEE9E1} ⪧ \space PonyTown \space ; \space tutorial(tut) \space skins \space DNI \space ⪨︎ }$$
 
