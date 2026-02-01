@@ -54,6 +54,11 @@ $${\color{#7796BA} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄�
 ![System Blinkie](https://github.com/user-attachments/assets/29d33fa4-d326-4729-870e-1ee4f277e7ef)
 
 
+![Static Badge](https://img.shields.io/badge/GU1-GU1?label=Kewl&labelColor=EEE9E1&color=E4ECF6)
+![Static Badge](https://img.shields.io/badge/LOLXD-LOLXD?label=Zcene&labelColor=C1C1B9&color=657CCF)
+![Static Badge](https://img.shields.io/badge/x3-x3?label=XP&labelColor=F5F2D0&color=22336E)
+
+
 <details>
 <summary>$${\color{#88BAD1} Links \space ! }$$</summary>
 
