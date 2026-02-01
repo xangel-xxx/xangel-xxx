@@ -44,10 +44,14 @@ $${\color{#C1C1B9}Cre }$$
 </details>
 
 
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+$${\color{#7796BA} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄ }$$
 
 
-hhfhff
+![ADHD Blinkie](https://github.com/user-attachments/assets/73eee78f-7972-46d4-9ec4-8b76ad633bb5)
+![Autism Blinkie](https://github.com/user-attachments/assets/b21afa01-d1be-4493-a4da-419af0c16334)
+![OCD Blinkie](https://github.com/user-attachments/assets/4e749b65-6539-4956-a773-968125a0e3be)
+![PTSD Blinkie](https://github.com/user-attachments/assets/a35001b8-f9f6-4455-9411-37b16e728343)
+![System Blinkie](https://github.com/user-attachments/assets/29d33fa4-d326-4729-870e-1ee4f277e7ef)
 
 
 <details>
