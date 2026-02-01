@@ -1,6 +1,6 @@
 <div align=center>
 
-<img width="490" height="490" alt="Scene Two Time Widget" src="https://github.com/user-attachments/assets/9046f530-5f90-474c-97d4-effd90b48d8c" />
+<img width="480" height="480" alt="Scene Two Time Widget" src="https://github.com/user-attachments/assets/9046f530-5f90-474c-97d4-effd90b48d8c" />
 
 
 <img width="666" height="375" alt="Blue divider 4" src="https://github.com/user-attachments/assets/6cd186cf-c679-407b-ba8c-e24005f54cde" />
