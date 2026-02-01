@@ -55,19 +55,19 @@ $${\color{#C1C1B9}Cre }$$
 
 <details>
 <summary>$${\color{#E2E2E2} ⪧ \space DNI's \space + \space IWC/IWEC's \space + \space INT's \space !Ꮺ }$$</summary>
-EEE9E1
+$${\color{#EEE9E1
 
-EEE9E1
+$${\color{#EEE9E1
 
-EEE9E1
+$${\color{#EEE9E1
 
-EEE9E1
+$${\color{#EEE9E1
 
-EEE9E1
+$${\color{#EEE9E1
 
-EEE9E1
+$${\color{#EEE9E1
 
-EEE9E1
+$${\color{#EEE9E1
 
 
 $${\color{#FFFFFF} ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈ }$$
