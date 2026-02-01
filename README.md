@@ -68,6 +68,7 @@ $${\color{#EEE9E1
 $${\color{#EEE9E1
 
 $${\color{#EEE9E1
+</details>
 
 
 $${\color{#FFFFFF} ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈ }$$
