@@ -9,6 +9,10 @@
 
 ╰──────────────────────────────╯
 
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=296BBC&width=435&lines=%22+I+no+thiz+prty+zcene+gurl+!+!+%3Ev%3C+%22;%22I+wsh+yu+clda+zeen+her+!+!+!+0_o+%22;%22+I+no+zhe'z+got+zome+prblms+.+.+Q%5E%EF%BC%B1+%22;%22+But+I+don+wnna+leave+her+!+%2C%3En%3C+%22)](https://git.io/typing-svg)
+
+
 $${\color{#56A6F0} ╭─────────────────╮ }$$
 
 
