@@ -59,13 +59,13 @@ $${\color{#EEE9E1} ⪧ \space General \space ; \space other \space systems \spac
 
 $${\color{#EEE9E1} ⪧ \space General \space; \space fictionkins \space + \space fictikins \space INT \space ⪨︎
 
-$${\color{#EEE9E1} ⪧ \space General \space ; doubles \space INT \space
+$${\color{#EEE9E1} ⪧ \space General \space ; doubles \space INT \space ⪨︎
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space singlets \space INT \space
+$${\color{#EEE9E1} ⪧ \space General \space ; \space singlets \space INT \space ⪨︎
 
 $${\color{#EEE9E1} ⪧ \space General \space ; \space Inrojects(intrj) \space INT \space ⪨︎
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space Multiship \space + \space crackship \space INT \space
+$${\color{#EEE9E1} ⪧ \space General \space ; \space Multiship \space + \space crackship \space INT \space ⪨︎
 
 $${\color{#EEE9E1} ⪧ \space General \space ; \space Darkshippers \space + \space Proshippers \space IWEC \space ⪨︎
 
@@ -79,7 +79,7 @@ $${\color{#EEE9E1} ⪧ \space General \space ; \space Racist \space , \space Inc
 
 $${\color{#EEE9E1} ⪧ \space General \space ; \space Religous \space Forcers \space , \space strictly \space religous \space IWC \space ⪨︎
 
-$${\color{#EEE9E1} ⪧ \space General \space ; \space Multifandom \space IWC \space
+$${\color{#EEE9E1} ⪧ \space General \space ; \space Multifandom \space IWC \space ⪨︎
 
 $${\color{#EEE9E1} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. \space . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
