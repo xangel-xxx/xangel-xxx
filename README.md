@@ -41,7 +41,7 @@ $${\color{#C1C1B9}Cre }$$
 
 
 <details>
-<summary>Links !</summary>
+<summary>$${\color{#88BAD1} Links \space ! }$$</summary>
 
 [🌀](https://en.pronouns.page/@Xangel_xxx___)
 , [💤](https://bleghboo.carrd.co))
