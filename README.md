@@ -41,6 +41,13 @@ $${\color{#C1C1B9}Cre }$$
 
 ‿・꒷꒦‧₊ ┈ ・꒷꒦‧₊ ┈ ・꒷꒦‧₊ ┈ ・꒷꒦‧₊ ┈ ・꒷꒦‧₊ ┈ ・꒷꒦‧₊‿
 
+Links !
+
+[🌀](https://en.pronouns.page/@Xangel_xxx___)
+, [💤](https://bleghboo.carrd.co))
+, [🫐](https://www.youtube.com/@Wannabe.ka1)
+, [🪩](https://pin.it/6uH021rh4))
+
 
 <details>
 <summary>$${\color{#E2E2E2} ⪧ \space DNI's \space + \space IWC/IWEC's \space + \space INT's \space !Ꮺ }$$</summary>
