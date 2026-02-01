@@ -93,6 +93,9 @@ $${\color{#EEE9E1} ⪧ \space PonyTown \space ; \space whisper \space spam \spac
 </details>
 
 
+![Paw Pixel](https://github.com/user-attachments/assets/d8d97bd5-6299-4298-86ad-ce5d49d26aa7)
+
+
 $${\color{#FFFFFF} ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈ }$$
 
 
