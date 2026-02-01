@@ -42,11 +42,17 @@ $${\color{#C1C1B9}Cre }$$
 
 $${\color{#FFFFFF} ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈ }$$
 
+
 $${\color{#E4ECF6} ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈ }$$
+
 
 $${\color{#657CCF} ┈┈┈┈┈┈┈┈┈┈┈┈┈┈ }$$
 
+
 $${\color{#22336E} ┈┈┈┈┈┈┈┈┈ }$$
+
+
+![Dolphin or Shark Pixel](https://github.com/user-attachments/assets/ebd46952-d030-44a5-aac7-89a4c8453b5c)
 
 
 </div>
