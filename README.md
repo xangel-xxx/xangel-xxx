@@ -63,6 +63,22 @@ $${\color{#EEE9E1} General \space ; doubles \space INT
 
 $${\color{#EEE9E1} General \space ; \space singlets \space INT
 
+$${\color{#EEE9E1}
+
+$${\color{#EEE9E1}
+
+$${\color{#EEE9E1}
+
+$${\color{#EEE9E1}
+
+$${\color{#EEE9E1}
+
+$${\color{#EEE9E1}
+
+$${\color{#EEE9E1}
+
+$${\color{#EEE9E1}
+
 $${\color{#EEE9E1} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. \space . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 $${\color{#EEE9E1} PonyTown \space ; \space tutorial(tut) \space skins \space DNI \space
