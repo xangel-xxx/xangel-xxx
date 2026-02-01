@@ -59,6 +59,9 @@ $${\color{#7796BA} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄�
 ![Static Badge](https://img.shields.io/badge/x3-x3?label=XP&labelColor=F5F2D0&color=22336E)
 
 
+$${\color{#F5F2D0} ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ }$$
+
+
 <details>
 <summary>$${\color{#88BAD1} Links \space ! }$$</summary>
 
