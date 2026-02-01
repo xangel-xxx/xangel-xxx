@@ -42,7 +42,7 @@ $${\color{#C1C1B9}Cre }$$
 ‿・꒷꒦‧₊ ┈ ・꒷꒦‧₊ ┈ ・꒷꒦‧₊ ┈ ・꒷꒦‧₊ ┈ ・꒷꒦‧₊ ┈ ・꒷꒦‧₊‿
 
 
-E2E2E2 ⪧ DNI'S + IWC/IWEC's + INT's !Ꮺ
+$${\color{#E2E2E2 ⪧ DNI'S + IWC/IWEC's + INT's !Ꮺ
 
 
 $${\color{#FFFFFF} ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈ }$$
