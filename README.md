@@ -55,29 +55,17 @@ $${\color{#C1C1B9}Cre }$$
 
 <details>
 <summary>$${\color{#E2E2E2} ⪧ \space DNI's \space + \space IWC/IWEC's \space + \space INT's \space !Ꮺ }$$</summary>
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} General \space ; \space other \space systems \space INT \space
 
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} General \space; \space fictionkins \space + \space fictikins \space INT \space
 
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} General \space ; doubles \space INT
 
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} General \space ; \space singlets \space INT
 
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. \space . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
-$${\color{#EEE9E1}
-
-$${\color{#EEE9E1}
-
-$${\color{#EEE9E1}
-
-$${\color{#EEE9E1}
-
-$${\color{#EEE9E1}
-
-$${\color{#EEE9E1}
-
-$${\color{#EEE9E1}
+$${\color{#EEE9E1} PonyTown \space ; \space tutorial(tut) \space skins \space DNI \space
 </details>
 
 
