@@ -69,6 +69,7 @@ $${\color{#F5F2D0} ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ }$$
 , [💤](https://bleghboo.carrd.co))
 , [🫐](https://www.youtube.com/@Wannabe.ka1)
 , [🪩](https://pin.it/6uH021rh4))
+, [🪼](https://docs.google.com/document/d/1PANTcp__Fhnn0pOFWb7kKp1U7RxV5vB7gpJBMpVONcA/edit?usp=sharing)
 </details>
 
 
