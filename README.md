@@ -62,6 +62,12 @@ $${\color{#7796BA} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄�
 $${\color{#F5F2D0} ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ }$$
 
 
+If you yume-ship or self-ship yourself with a character, and you find out we have an alter of said character. Do NOT. Ask to date them. It makes us incredibly uncomfortable, especially if we don't know you well. If you're a close friend - or someone we've known for a while - and most of our alters are okay with you, sure. But if we barely know you, no.
+
+
+$${\color{#F5F2D0} ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ }$$
+
+
 <details>
 <summary>$${\color{#88BAD1} Links \space ! }$$</summary>
 
@@ -113,9 +119,6 @@ $${\color{#EEE9E1} ⪧ \space PonyTown \space ; \space whisper \space spam \spac
 
 
 ![Paw Pixel](https://github.com/user-attachments/assets/d8d97bd5-6299-4298-86ad-ce5d49d26aa7)
-
-
-If you yume-ship or self-ship yourself with a character, and you find out we have an alter of said character. Do NOT. Ask to date them. It makes us incredibly uncomfortable, especially if we don't know you well. If you're a close friend - or someone we've known for a while - and most of our alters are okay with you, sure. But if we barely know you, no.
 
 
 $${\color{#FFFFFF} ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈ }$$
