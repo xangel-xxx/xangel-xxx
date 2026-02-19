@@ -19,6 +19,15 @@ $${\color{#56A6F0} ╭─────────────────╮ }$$
 ![Milk Pixel](https://github.com/user-attachments/assets/b99f3366-11c1-4a80-b42c-ebd14331c7c7)
 
 
+🌙 = AFK / Doing Something NEAR device
+, ⛔ = Not in a talkative mood / busy
+, 🟢 = At devie and online / somewhat chatty
+, 💭 = Talkative
+
+
+![Milk Pixel](https://github.com/user-attachments/assets/b99f3366-11c1-4a80-b42c-ebd14331c7c7)
+
+
 $${\color{#EEE9E1} They/Them \space ᴗ \space He/Him \space prns \space Ꮺ }$$
 
 
